@@ -1,0 +1,1 @@
+Haloo, perkenalkan saya adalah Jonathan Pratama Dinatha, seorang Mahasiswa Teknik Informatika pada Universitas Palangka Raya. Project ini adalah Web Portofolio pertama saya, terima kasih sudah melihat ya.
